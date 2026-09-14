@@ -52,7 +52,7 @@
 <details>
     <summary>◡◡ FYI ୭ ˚. ♪</summary>
 
-Im a very shy person, but i am always active and happy to hear you yap away about your interests! so dont be scared to talk to me 
+Im a very shy person, but i am always active and happy to hear you yap away about your interests! so dont be scared to interact with me !! :D
 </details>
 
 
