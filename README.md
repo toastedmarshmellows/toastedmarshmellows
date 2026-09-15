@@ -33,7 +33,7 @@
 <details>
     <summary>◡◡ PonyTown .☘︎ ݁˖</summary>
 
-- Cuddles? go ahead !!  i am a big fan of cuddling ^_^
+- Cuddles? go ahead !!  i am a HUGEEE fan of cuddling ^_^
 
 - kisses? yea! i do not mind kisses
 
@@ -46,6 +46,7 @@
     <summary>◡◡ DNI ❗❗ ˎˊ˗</summary>
 
 - basic dni
+- homophobia, racism, and maga
 - i block and hide freely
 </details>
 
