@@ -4,13 +4,16 @@
   ![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/24eda0145b1ef39bfb1cbac706cb2a6f4c49a60c/mo39.gif) "*Do you believe in love at first site? do you believe in ***fate****?" ![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/36fc56c9e9c0db6503fd1d70cf38c355699c6080/mo38.gif)
 
 ![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/36fc56c9e9c0db6503fd1d70cf38c355699c6080/4pn60i.gif)"*i believe in good things.. only come to those who ***wait****" <br />
+<br/>
+**Click on the arrows to learn about me!**
+
 <details>
     <summary>◡◡ About me!!  ❤︎</summary>
 
-- my favorite color is red and purple ! i am a really big fan of red 👀
-- i cosplay! i have cosplayed Blot, looey, Clockwork, and soon to be ticci toby!
-- i LOVE making strawpages + cards ^_^
-- i enjoy rollerskating AND skateboarding 
+- my favorite colors are red and purple ! i am a really big fan of red 👀
+- i cosplay! i have cosplayed Blot, Looey, Pinkie pie, Clockwork, and soon to be Ticci toby!
+- I LOVE making strawpages + cards ^_^
+- Birthday on thanksgiving 🍰
 - my interests are
   
   > Animal hospital
@@ -27,33 +30,40 @@
   
   > 3FS & The Baflams
   
-  > And more !
+  > The Outsiders
+  
+  > DDLC
+  
+  > And more!
+  - I also LOVEE to match! If you'd like to match, i'd gladly match with you! :D
+  - AND gifting my friends ponies ^_^
 </details>
 
 <details>
     <summary>◡◡ PonyTown .☘︎ ݁˖</summary>
 
-- Cuddles? go ahead !!  i am a HUGEEE fan of cuddling ^_^
+- **Cuddles?** Go ahead !!  i am a HUGEEE fan of cuddling ^_^
 
-- kisses? yea! i do not mind kisses
+- **Kisses?** Yea! i do not mind kisses
 
-- covering? yeah ! i dont care if you cover me since im mostly not there lol
+- **Covering?** Yeah ! i dont care if you cover me since im mostly not there lol
 
-***NOTE!***  i will mostly be offtab or afk, so please w2i
+***NOTE!***  I will mostly be offtab or afk, so please w2i
 </details>
 
 <details>
     <summary>◡◡ DNI ❗❗ ˎˊ˗</summary>
 
 - basic dni
-- homophobia, racism, and maga
-- i block and hide freely
+- <ins>Homophobia, Racism, Pedos, Zoos and Maga<ins/>
+- I block and hide freely
 </details>
 
 <details>
     <summary>◡◡ FYI ୭ ˚. ♪</summary>
 
-Im a very shy person, but i am always active and happy to hear you yap away about your interests! so dont be scared to interact with me !! :D
+- Im a very shy person, but i am always active and happy to hear you yap away about your interests!
+- dont be scared to interact with me !! :D
 </details>
 
 
