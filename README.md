@@ -10,13 +10,13 @@
 <details>
     <summary>◡◡ About me!!  ❤︎</summary>
 
-- my favorite colors are red and purple ! i am a really big fan of red 👀
-- i cosplay! i have cosplayed Blot, Looey, Pinkie pie, Clockwork, and soon to be Ticci toby!
+- My favorite colors are red and purple ! i am a really big fan of red 👀
+- I cosplay! i have cosplayed Blot, Looey, Pinkie pie, Clockwork, and soon to be Ticci toby!
 - I LOVE making strawpages + cards ^_^
 - Birthday on thanksgiving 🍰
 - my interests are
   
-  > Slenderverse
+  > Slenderverse (main interest)
   
   > Animal hospital
 
@@ -36,9 +36,11 @@
   
   > DDLC
   
-  > And more!
-  - I also LOVEE to match! If you'd like to match, i'd gladly match with you! :D
-  - AND gifting my friends ponies ^_^
+  > Forsaken
+  
+  > and many more . . . 
+  - I also LOVEE to match! If you need someone to match with, I'd gladly match with you! :D
+  - I enjoy gifting my friends ponies, gift giving is my love language ^_^
 </details>
 
 <details>
@@ -50,6 +52,8 @@
 
 - **Covering?** Yeah ! i dont care if you cover me since im mostly not there lol
 
+- **Friend requests?** yesyesyes bmf please
+
 ***NOTE!***  I will mostly be offtab or afk, so please w2i
 </details>
 
@@ -59,6 +63,7 @@
 - basic dni
 - <ins>Homophobia, Racism, Pedos, Zoos and Maga<ins/>
 - I block and hide freely
+- Trolls !!
 </details>
 
 <details>
