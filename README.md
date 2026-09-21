@@ -1,9 +1,12 @@
-![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/8c74ce83962af04f10fbe35ff0328f410b88c069/download%20(44).jpg)
-![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/e04fe9a6fe6bbf938177712aa0a912d1df0360a8/Portada%20CreepyPasta.jpg)
+![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/31618aa614f9c4b6c1f3f575fe93e876d7dc8c3b/%40smr6lad%20%E2%98%85%E2%98%86.jpg)
+![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/0f400bfe086087c6045287e3041f86c42b87d083/The%20Outsiders%20(1983).jpg)
 
-  ![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/24eda0145b1ef39bfb1cbac706cb2a6f4c49a60c/mo39.gif) "*Do you believe in love at first site? do you believe in ***fate****?" ![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/36fc56c9e9c0db6503fd1d70cf38c355699c6080/mo38.gif)
+**" i know i look lousy but dont rub it in."** - Ponyboy curtis
 
-![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/36fc56c9e9c0db6503fd1d70cf38c355699c6080/4pn60i.gif)"*i believe in good things.. only come to those who ***wait****" <br />
+  ![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/24eda0145b1ef39bfb1cbac706cb2a6f4c49a60c/mo39.gif) "*I'm telling you it's not a trick
+pay attention, don't be thick or you're liable to get licked.*" ![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/36fc56c9e9c0db6503fd1d70cf38c355699c6080/mo38.gif)
+
+![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/36fc56c9e9c0db6503fd1d70cf38c355699c6080/4pn60i.gif)"*And you're gonna see the reason why when they're spittin' in your eye they'll be spittin' in your eye*" <br />
 <br/>
 _______________________________________________________________________________________________
 <ins>Links</ins>!
