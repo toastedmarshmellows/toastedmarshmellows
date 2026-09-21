@@ -11,7 +11,7 @@
     <summary>◡◡ About me!!  ❤︎</summary>
 
 - My favorite colors are red and purple ! i am a really big fan of red 👀
-- I cosplay! i have cosplayed Blot, Looey, Pinkie pie, Clockwork, and soon to be Ticci toby!
+- i change fandoms quick so my profile and page might change frequently
 - I LOVE making strawpages + cards ^_^
 - Birthday on thanksgiving 🍰
 - I absolutely love to match! If you need someone to match with, I'd gladly match with you! :D
