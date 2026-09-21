@@ -14,17 +14,19 @@
 - I cosplay! i have cosplayed Blot, Looey, Pinkie pie, Clockwork, and soon to be Ticci toby!
 - I LOVE making strawpages + cards ^_^
 - Birthday on thanksgiving 🍰
-- my interests are
+- I absolutely love to match! If you need someone to match with, I'd gladly match with you! :D
+- I enjoy gifting my friends ponies, gift giving is my love language ^_^
+- my interests include ..
   
   > Slenderverse (main interest)
   
-  > Animal hospital
+  > Forsaken 
 
   > Call of duty
 
   > MLP
   
-  > The Walten Files
+  > Animal hospital
   
   > TF2
   
@@ -36,11 +38,10 @@
   
   > DDLC
   
-  > Forsaken
+  > The Walten Files
   
   > and many more . . . 
-  - I also LOVEE to match! If you need someone to match with, I'd gladly match with you! :D
-  - I enjoy gifting my friends ponies, gift giving is my love language ^_^
+ 
 </details>
 
 <details>
@@ -52,7 +53,7 @@
 
 - **Covering?** Yeah ! i dont care if you cover me since im mostly not there lol
 
-- **Friend requests?** yesyesyes bmf please
+- **Friend requests?** yesyesyes bmfbmfbmf please
 
 ***NOTE!***  I will mostly be offtab or afk, so please w2i
 </details>
