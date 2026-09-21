@@ -5,6 +5,17 @@
 
 ![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/36fc56c9e9c0db6503fd1d70cf38c355699c6080/4pn60i.gif)"*i believe in good things.. only come to those who ***wait****" <br />
 <br/>
+_______________________________________________________________________________________________
+<ins>Links</ins>!
+
+  [Strawpage !](https://toastedmarshmallowss.straw.page) 𝜗ৎ [my ata book](https://toastedmarshmallows.atabook.org/)
+ 
+
+
+
+
+
+
 **Click on the arrows to learn about me!**
 
 <details>
@@ -74,9 +85,5 @@
 - dont be scared to interact with me !! :D
 </details>
 
-
-╰┈➤ <ins>Links</ins> !</p>
-
-[Strawpage !](https://toastedmarshmallowss.straw.page) 𝜗ৎ [my ata book](https://toastedmarshmallows.atabook.org/)
-
 ![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/587563b20022d3d6aa1523d298534647418abeea/download%20(45).jpg)
+
