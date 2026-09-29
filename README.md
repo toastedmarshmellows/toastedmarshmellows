@@ -1,17 +1,10 @@
 ![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/31618aa614f9c4b6c1f3f575fe93e876d7dc8c3b/%40smr6lad%20%E2%98%85%E2%98%86.jpg)
 ![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/0f400bfe086087c6045287e3041f86c42b87d083/The%20Outsiders%20(1983).jpg)
 
-**" i know i look lousy but dont rub it in."** - Ponyboy curtis
 
-  ![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/24eda0145b1ef39bfb1cbac706cb2a6f4c49a60c/mo39.gif) "*I'm telling you it's not a trick
-pay attention, don't be thick or you're liable to get licked.*" ![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/36fc56c9e9c0db6503fd1d70cf38c355699c6080/mo38.gif)
-
-![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/36fc56c9e9c0db6503fd1d70cf38c355699c6080/4pn60i.gif)"*And you're gonna see the reason why when they're spittin' in your eye they'll be spittin' in your eye*" <br />
-<br/>
-_______________________________________________________________________________________________
 <ins>Links</ins>!
 
-  [Strawpage !](https://toastedmarshmallowss.straw.page) 𝜗ৎ [my ata book](https://toastedmarshmallows.atabook.org/)
+  [strawpage](https://toastedmarshmallowss.straw.page) 𝜗ৎ [ata](https://toastedmarshmallows.atabook.org/)
  
 
 
@@ -27,14 +20,15 @@ ________________________________________________________________________________
 - My favorite colors are red and purple ! i am a really big fan of red 👀
 - i change fandoms quick so my profile and page might change frequently
 - I LOVE making strawpages + cards ^_^
-- Birthday on thanksgiving 🍰
+- My birthday 11/26 !! 🍰
 - I absolutely love to match! If you need someone to match with, I'd gladly match with you! :D
 - I enjoy gifting my friends ponies, gift giving is my love language ^_^
 - my interests include ..
   
   > Slenderverse (main interest)
   
-  > Forsaken 
+  > Forsaken
+<br/>
 
   > Call of duty
 
@@ -55,7 +49,6 @@ ________________________________________________________________________________
   > The Walten Files
   
   > and many more . . . 
- - **NOTE !!** my pub chat is off in docks!
 </details>
 
 <details>
@@ -65,7 +58,7 @@ ________________________________________________________________________________
 
 - **Kisses?** Yea! i do not mind kisses
 
-- **Covering?** Yeah ! i dont care if you cover me since im mostly not there lol
+- **Covering?** Yeah ! i dont care if you cover me, im mostly not there lol
 
 - **Friend requests?** yesyesyes bmfbmfbmf please
 
@@ -75,10 +68,7 @@ ________________________________________________________________________________
 <details>
     <summary>◡◡ DNI ❗❗ ˎˊ˗</summary>
 
-- basic dni
-- <ins>Homophobia, Racism, Pedos, Zoos and Maga<ins/>
-- I block and hide freely
-- Trolls !!
+  -i have no dni !! i block and hide freely. 
 </details>
 
 <details>
@@ -87,6 +77,13 @@ ________________________________________________________________________________
 - Im a very shy person, but i am always active and happy to hear you yap away about your interests!
 - dont be scared to interact with me !! :D
 </details>
+ 
+ **" Nothing gold can stay . "** - Ponyboy curtis
+
+  ![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/24eda0145b1ef39bfb1cbac706cb2a6f4c49a60c/mo39.gif) "*I'm telling you it's not a **trick**
+pay attention, don't be thick or you're **liable** to get **licked.***" ![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/36fc56c9e9c0db6503fd1d70cf38c355699c6080/mo38.gif)
+
+![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/36fc56c9e9c0db6503fd1d70cf38c355699c6080/4pn60i.gif)"*And you're gonna see the reason why when they're spittin' in your eye they'll be spittin' in your eye..*" <br />
 
 ![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/587563b20022d3d6aa1523d298534647418abeea/download%20(45).jpg)
 
