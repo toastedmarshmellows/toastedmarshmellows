@@ -1,92 +1,69 @@
-![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/31618aa614f9c4b6c1f3f575fe93e876d7dc8c3b/%40smr6lad%20%E2%98%85%E2%98%86.jpg)
-![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/0f400bfe086087c6045287e3041f86c42b87d083/The%20Outsiders%20(1983).jpg)
+![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/28f4929a6e108ed940366e7275ec3eefb9d3a2ee/xz3pn3.webp)
 
-**" Nothing gold can stay . "** - Ponyboy curtis
-
-<ins>Links</ins>!
-
-  [strawpage](https://willowtreess.straw.page) 𝜗ৎ [ata](https://toastedmarshmallows.atabook.org/)
- 
+" ℰarth 𝒜ngel, ℰarth 𝒜ngel. 𝒲ill you be ℳ𝒾𝓃𝑒?"
 
 
+<img src="https://github.com/toastedmarshmellows/toastedmarshmellows/blob/7a554d8cd6bd2d65c862ae3467282de0a972e40f/tumblr_7352580119f7c377c28b2c974105f73f_82ee5283_100.webp"> 
 
+" ℳy 𝒟arling 𝒟ear.. ℒ𝑜𝓋𝑒 you all the time ! "
 
-
-
-**Click on the arrows to learn about me!**
+◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡
 
 <details>
-    <summary>◡◡ About me!!  ❤︎</summary>
+    <summary>𝒜bout me!</summary>
 
-- My favorite colors are red and purple ! i am a really big fan of red 👀
-- i change fandoms quick so my profile and page might change frequently
-- I LOVE making strawpages + cards ^_^
-- My birthday 11/26 !! 🍰
+- My favorite color is red .. i am a big fan of red 👀!!!
+- I love making strawpages + cards
+- I change fandoms quicky, so my github might change a bit ;_; !
+- birthday 11/16 🍰 !!
 - I absolutely love to match! If you need someone to match with, I'd gladly match with you! :D
-- I enjoy gifting my friends ponies, gift giving is my love language ^_^
+- I enjoy gifting my friends ponies and supporter , gift giving is my love language ^_^
+- I am a VERY shy person, but i am always active and always happy to hear you talk about your interests! Dont be scared to interact with me :D
 - my interests include ..
-  
-
-<br/>
- 
-  > The Outsiders(main interest)
-  
-  > Forsaken
-  
-  > Call of duty
-
-  > MLP
-  
-  > Animal hospital
-  
-  > TF2
-  
-  > Vita Carnis
-  
-  > 3FS & The Baflams
-  
-  > Slenderverse 
-  
-  > DDLC
-  
-  > The Walten Files
-  
-  > and many more . . . 
+> The Outsiders (main interest currently)
+> Slenderverse
+> Forsaken
+> COD
+> MLP
+> FAA
+> 3FS and the baflams
+> tf2
+> and much much more..
 </details>
 
 <details>
-    <summary>◡◡ PonyTown .☘︎ ݁˖</summary>
+    <summary>𝒫onytown!</summary>
 
-- **Cuddles?** Go ahead !!  i am a HUGEEE fan of cuddling ^_^
-
-- **Kisses?** Yea! i do not mind kisses
-
-- **Covering?** Yeah ! i dont care if you cover me, im mostly not there lol
-
-- **Friend requests?** yesyesyes bmfbmfbmf please
-
-***NOTE!***  I will mostly be offtab or afk, so please w2i
+- **Cuddles?** ABSOLUTELY ! you can come up to me anytime and cuddle me :3
+- **Kisses?** Go right ahead !
+- **Covering?** I dont mind ! i am not there most of the time
+- **Friend requests?** YES ! BE MY FRIEND :DDD
+- ***NOTE*** I will mostly be offtab, so please w2i !
 </details>
 
 <details>
-    <summary>◡◡ DNI ❗❗ ˎˊ˗</summary>
+    <summary>𝒟NI !</summary>
 
-  -i have no dni !! i block and hide freely. 
+- I have no dni ! i block and hide freely
 </details>
 
 <details>
-    <summary>◡◡ FYI ୭ ˚. ♪</summary>
+    <summary>𝒮tamps !</summary>
 
-- Im a very shy person, but i am always active and happy to hear you yap away about your interests!
-- dont be scared to interact with me !! :D
+<img width="99" height="56" alt="Tumblr-l-487798845534803" src="https://github.com/user-attachments/assets/0e5f5e87-b444-416c-83f9-5cdd86d41420" />
+<img width="99" height="56" alt="Tumblr-l-487690970025833" src="https://github.com/user-attachments/assets/d165c725-b54f-4964-acdd-c98a578e11a3" /><img width="100" height="55" alt="tumblr_324b33d495b8cb7d53e16b89d1a28dfc_508f30b6_100" src="https://github.com/user-attachments/assets/34ae5e7e-3b92-4067-93c1-0454c8ed3822" />
+<img width="100" height="55" alt="tumblr_47f20c819223a57ac78b850149efe1b7_d9489d9a_100" src="https://github.com/user-attachments/assets/c18bbfd2-e219-4673-9d19-f3ec83f1b8b3" />
+<img width="100" height="55" alt="tumblr_066e2351f79191995ca4e322babd3b38_8403490d_100" src="https://github.com/user-attachments/assets/1f52f1c1-1739-4b36-86b5-77949578caf9" />
+
+
+<img width="99" height="57" alt="12859928" src="https://github.com/user-attachments/assets/93260b96-d96d-4477-9a57-1ffa38c71511" />
+<img width="99" height="56" alt="Tumblr_l_4456707501007" src="https://github.com/user-attachments/assets/d05329f5-d990-4ba9-b515-ea1fb990e8e8" />
+<img width="99" height="56" alt="tumblr_4a13830dd275bcafd1482e1dbb1fc45e_a8cd6e26_100" src="https://github.com/user-attachments/assets/e86def36-9c5c-489c-9023-5b4501184f41" />
+<img width="100" height="56" alt="tumblr-bad6c20226b3e46830f5d3f14f0dc0cb-a9253054-100" src="https://github.com/user-attachments/assets/d59141a3-6ef4-4cf0-a6d3-ed27a57534db" />
+<img width="100" height="55" alt="tumblr_0956cd1aa7883826439b10531910e767_81b564cb_100" src="https://github.com/user-attachments/assets/775693ad-5a3a-4345-9854-6301eb8ec17a" />
+<img width="100" height="55" alt="tumblr_2c6d070e4938230b38d3b9b147fd3b0c_efc38bbd_100" src="https://github.com/user-attachments/assets/530229e1-cb1d-448e-afa1-aeb7da2ad78e" />
+
+
 </details>
- 
- 
 
-  ![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/24eda0145b1ef39bfb1cbac706cb2a6f4c49a60c/mo39.gif) "*I'm telling you it's not a **trick**
-pay attention, don't be thick or you're **liable** to get **licked.***" ![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/36fc56c9e9c0db6503fd1d70cf38c355699c6080/mo38.gif)
-
-![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/36fc56c9e9c0db6503fd1d70cf38c355699c6080/4pn60i.gif)"*And you're gonna see the reason why when they're spittin' in your eye they'll be spittin' in your eye..*" <br />
-
-![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/587563b20022d3d6aa1523d298534647418abeea/download%20(45).jpg)
-
+![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/28f4929a6e108ed940366e7275ec3eefb9d3a2ee/xz3pn3.webp)
