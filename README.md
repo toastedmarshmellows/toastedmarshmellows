@@ -66,4 +66,9 @@
 
 </details>
 
+Links !
+
+ [STRAW ! ♥︎](https://willowtreess.straw.page) <img width="20" height="20" alt="tumblr-ae8a7be8ff2074a4c0c0d33276e20524-2cb267df-75" src="https://github.com/user-attachments/assets/1d9d5f94-0da2-44c2-ad3e-4a2b68e7dcdc" />
+[ATA ! 𝜗ৎ](https://toastedmarshmallows.atabook.org/) <img width="20" height="20" alt="qdbptl" src="https://github.com/user-attachments/assets/0686ff8b-5ead-4dad-98ad-a9aee92b8e46" />
+
 ![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/28f4929a6e108ed940366e7275ec3eefb9d3a2ee/xz3pn3.webp)
