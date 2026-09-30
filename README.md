@@ -1,6 +1,7 @@
 ![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/31618aa614f9c4b6c1f3f575fe93e876d7dc8c3b/%40smr6lad%20%E2%98%85%E2%98%86.jpg)
 ![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/0f400bfe086087c6045287e3041f86c42b87d083/The%20Outsiders%20(1983).jpg)
 
+**" Nothing gold can stay . "** - Ponyboy curtis
 
 <ins>Links</ins>!
 
@@ -25,11 +26,13 @@
 - I enjoy gifting my friends ponies, gift giving is my love language ^_^
 - my interests include ..
   
-  > Slenderverse (main interest)
+
+<br/>
+ 
+  > The Outsiders(main interest)
   
   > Forsaken
-<br/>
-
+  
   > Call of duty
 
   > MLP
@@ -42,7 +45,7 @@
   
   > 3FS & The Baflams
   
-  > The Outsiders
+  > Slenderverse 
   
   > DDLC
   
@@ -78,7 +81,7 @@
 - dont be scared to interact with me !! :D
 </details>
  
- **" Nothing gold can stay . "** - Ponyboy curtis
+ 
 
   ![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/24eda0145b1ef39bfb1cbac706cb2a6f4c49a60c/mo39.gif) "*I'm telling you it's not a **trick**
 pay attention, don't be thick or you're **liable** to get **licked.***" ![image alt](https://github.com/toastedmarshmellows/toastedmarshmellows/blob/36fc56c9e9c0db6503fd1d70cf38c355699c6080/mo38.gif)
