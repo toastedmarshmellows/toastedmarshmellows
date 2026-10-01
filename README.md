@@ -20,14 +20,23 @@
 - I enjoy gifting my friends ponies and supporter , gift giving is my love language ^_^
 - I am a VERY shy person, but i am always active and always happy to hear you talk about your interests! Dont be scared to interact with me :D
 - my interests include ..
+
 > The Outsiders (main interest currently)
+
 > Slenderverse
+
 > Forsaken
+
 > COD
+
 > MLP
+
 > FAA
+
 > 3FS and the baflams
+
 > tf2
+
 > and much much more..
 </details>
 
