@@ -43,10 +43,10 @@
 <details>
     <summary>𝒫onytown!</summary>
 
-- **Cuddles?** ABSOLUTELY ! you can come up to me anytime and cuddle me :3
+- **Cuddles?** HUGE fan of cuddling ! you can come over and cuddle me :D ! (please do i love cuddling :eyes: )
 - **Kisses?** Go right ahead !
 - **Covering?** I dont mind ! i am not there most of the time
-- **Friend requests?** YES ! BE MY FRIEND :DDD
+- **Friend requests?** YES ! BE MY MOOTS !!! :DDD
 - ***NOTE*** I will mostly be offtab, so please w2i !
 </details>
 
