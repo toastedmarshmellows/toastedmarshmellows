@@ -15,7 +15,7 @@
 - My favorite color is red .. i am a big fan of red 👀!!!
 - I love making strawpages + cards
 - I change fandoms quicky, so my github might change a bit ;_; !
-- birthday 11/16 🍰 !!
+- birthday 11/26 🍰 !!
 - I absolutely love to match! If you need someone to match with, I'd gladly match with you! :D
 - I enjoy gifting my friends ponies and supporter , gift giving is my love language ^_^
 - I am a VERY shy person, but i am always active and always happy to hear you talk about your interests! Dont be scared to interact with me :D
