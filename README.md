@@ -14,18 +14,16 @@
 
 - My favorite color is red .. i am a big fan of red 👀!!!
 - I love making strawpages + cards
-- I change fandoms quicky, so my github might change a bit ;_; !
+- I change fandoms quicky, so my github might change a bit ; _ ; !
 - birthday 11/26 🍰 !!
 - I absolutely love to match! If you need someone to match with, I'd gladly match with you! :D
 - I enjoy gifting my friends ponies and supporter , gift giving is my love language ^_^
 - I am a VERY shy person, but i am always active and always happy to hear you talk about your interests! Dont be scared to interact with me :D
 - my interests include ..
 
-> The Outsiders (main interest currently)
+> The Outsiders
 
-> Slenderverse
-
-> Forsaken
+> Slenderverse ( main interest ! )
 
 > COD
 
@@ -37,7 +35,13 @@
 
 > tf2
 
-> DW (fandom iwc)
+> DW (fandom IWEC . )
+
+> The Walten Files
+
+> Vita Carnis
+
+> Analog Horror
 
 > and much much more..
 </details>
@@ -45,10 +49,10 @@
 <details>
     <summary>𝒫onytown!</summary>
 
-- **Cuddles?** HUGE fan of cuddling ! you can come over and cuddle me :D ! (please do i love cuddling :eyes: )
+- **Cuddles?** HUGE fan of cuddling ! you can come over and cuddle me :D ! (please do i LOVE cuddling :eyes: )
 - **Kisses?** Go right ahead !
 - **Covering?** I dont mind ! i am not there most of the time
-- **Friend requests?** YES ! BE MY MOOTS !!! :DDD
+- **Friend requests?** YES ! BE MY OOMFS !!! :DDD
 - ***NOTE*** I will mostly be offtab, so please w2i !
 </details>
 
