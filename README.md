@@ -49,11 +49,11 @@
 <details>
     <summary>𝒫onytown!</summary>
 
-- **Cuddles?** HUGE fan of cuddling ! you can come over and cuddle me :D ! (please do i LOVE cuddling :eyes: )
+- **Cuddles?** HUGE fan of cuddling ! you can come over and cuddle me, you dont have to ask :D ! (please cuddle me i beg :eyes: )
 - **Kisses?** Go right ahead !
 - **Covering?** I dont mind ! i am not there most of the time
 - **Friend requests?** YES ! BE MY OOMFS !!! :DDD
-- ***NOTE*** I will mostly be offtab, so please w2i !
+- ***NOTE*** I will mostly be offtab or asleep, so please w2i !
 </details>
 
 <details>
