@@ -53,7 +53,7 @@
 - **Kisses?** Go right ahead !
 - **Covering?** I dont mind ! i am not there most of the time
 - **Friend requests?** YES ! BE MY OOMFS !!! :DDD
-- ***NOTE*** I will mostly be offtab or asleep, so please w2i !
+- ***NOTE*** I will mostly be offtab or asleep, so please w2i. If i miss your whisper, use my atabook ^_^
 </details>
 
 <details>
