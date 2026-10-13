@@ -29,8 +29,22 @@
  ⤷   `𝒞lick on the arrows to learn about me ! (˶˃ ᵕ ˂˶)`
 </div>
 
+<div align="center">
+ 𝜗𝜚
+<div/>
+<br/>
+  <div align="center">
 <details>
     <summary>𝒜bout me !</summary>
 
 - Hello ! this is a wip .. pls wait T_T
 </details>
+</div>
+
+<div align="center">
+<details>
+    <summary>𝒫onytown !</summary>
+
+- Hello ! this is a wip .. pls wait T_T
+</details>
+</div>
