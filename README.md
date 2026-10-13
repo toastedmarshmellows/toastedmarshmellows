@@ -1,3 +1,4 @@
+
 <div align="center">
   “𝒞ry and cry and let it out , 𝓌e have to face that its over now. "
 </div>
@@ -26,25 +27,35 @@
 
 <div align="center">
 
- ⤷   `𝒞lick on the arrows to learn about me ! (˶˃ ᵕ ˂˶)`
+ ⤷   `𝒞lick on my strawpage to learn about me ! + 𝒮ign my ata pls`
 </div>
 
 <div align="center">
- 𝜗𝜚
+
+  <img width="20" height="20" alt="tumblr-8457f7cb0ad1eea8a215f632c4b7c554-7ea4aaeb-75" src="https://github.com/user-attachments/assets/f104ebca-4147-4e91-b633-e65e2c2c2381" />
+
 <div/>
-<br/>
-  <div align="center">
-<details>
-    <summary>𝒜bout me !</summary>
 
-- Hello ! this is a wip .. pls wait T_T
-</details>
+  <div align="center">
+
+  [𝒮trawpage!](https://willowtreess.straw.page) + [𝒜tabook](https://toastedmarshmallows.atabook.org/)
+
 </div>
 
-<div align="center">
-<details>
-    <summary>𝒫onytown !</summary>
+ <div align="center">
 
-- Hello ! this is a wip .. pls wait T_T
+   <details>
+    <summary>𝒩ominations!</summary>
+
+[Ponytown awards](https://github.com/Ponytowns-rewards)
 </details>
+  
+</div>
+
+<br/>
+
+ <div align="center">
+
+ <img width="100" height="55" alt="tumblr_7352580119f7c377c28b2c974105f73f_82ee5283_100" src="https://github.com/user-attachments/assets/c37c4691-0019-43f9-8194-03704182dc3f" />
+
 </div>
